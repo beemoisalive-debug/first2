@@ -9,6 +9,14 @@
 - 먹는 방
 - 귀여워 지는 법
 
+> **I bring, I bring all the drama.**
+>
+> --aespa
+>
+```
+배가 조금 고프다
+```
+
 
 
 
